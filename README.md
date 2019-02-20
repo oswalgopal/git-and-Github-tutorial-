@@ -9,6 +9,7 @@ https://www.youtube.com/channel/UCbSHPXXflBoK_eGwn5abvlQ
 
 ###for any query mail me on:- 
 oswal@oswalgopal.me
+OR
 gopal@oswalgopal.me
 
 
